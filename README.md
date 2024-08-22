@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning all
 - 💞️ I’m looking to collaborate on cool bro
 - 📫 How to reach me in cool place
-- 😄 Pronouns: cool\bro\hi idk
+- 😄 Pronouns: cool\bro\he idk
 - ⚡ Fun fact: RUSSIA!
 
 <!---
